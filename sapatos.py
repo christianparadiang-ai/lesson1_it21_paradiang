@@ -1,1 +1,1 @@
-palconit bayot pisot _ delacerna
+palconit bayot pisot _ delacerna - acierda
